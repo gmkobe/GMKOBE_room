@@ -1,0 +1,1 @@
+# GMKOBE_room
